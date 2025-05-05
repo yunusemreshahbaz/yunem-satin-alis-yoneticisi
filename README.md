@@ -1,0 +1,1 @@
+# yunem-satin-alis-yoneticisi
